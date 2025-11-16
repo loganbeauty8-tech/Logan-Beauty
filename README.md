@@ -34,8 +34,9 @@ Specializing in applications for neurology, oncology, cardiology, urology, diabe
 Live the experience at Logan Beauty!
 We invite you to 30-minute discovery therapy sessions to feel its powerful effects for yourself.
 Convinced? The OlyLife Tera P90 device is also available for sale so you can continue your treatments at home.
-Don't let daily ailments hold you back any longer. Make an appointment today and transform your life with the Tera P90!<br><br>
-| ![](IMG-20251108-WA0086.jpg) 🌿 **Révélez votre éclat intérieur avec Diva Secret SC⁺ - La révolution de la nutrition cellulaire !** 🌿
+Don't let daily ailments hold you back any longer. Make an appointment today and transform your life with the Tera P90!
+<br><br>
+| ![](img/IMG-20251108-WA0086.jpg) 🌿 **Révélez votre éclat intérieur avec Diva Secret SC⁺ - La révolution de la nutrition cellulaire !** 🌿
 Et si la clé d'une vitalité débordante se trouvait au cœur même de vos cellules ?
 Découvrez Diva Secret SC⁺, une percée scientifique formulée pour nourrir votre corps à son niveau le plus fondamental. Oubliez la fatigue et le vieillissement prématuré, et accueillez une nouvelle énergie qui rayonne de l'intérieur.
 Pourquoi Diva Secret est unique ?
