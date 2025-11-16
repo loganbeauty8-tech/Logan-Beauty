@@ -5,9 +5,7 @@ Votre meilleur allié pour votre santé
 /Your best ally for your health
 </span>
 
-Voici le code Markdown que vous pouvez utiliser dans votre fichier README.md sur GitHub pour afficher l'image de "Jinja Herbal Extracts" à gauche avec la description en français et en anglais à droite.
-code
-Markdown
+
 <table>
   <tr>
     <td width="30%">
