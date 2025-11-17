@@ -2,7 +2,8 @@
 
 <span style="color:green;">
 Votre meilleur allié pour votre santé  
-/Your best ally for your health
+/Your best ally for your health 
+  Contact: +237 652 48 94 17/675 20 85 55/652 07 07 43
 </span>
 
 
